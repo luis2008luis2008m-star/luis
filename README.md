@@ -3,5 +3,4 @@
 * melon
 
 
-
-https://www.pornhub.com/
+https://www.friv.com/z/games/powerpamplona/game.html
